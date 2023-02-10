@@ -1,2 +1,2 @@
 # anthon2010.github.io
-Hello My Name is anthon2010
+This website will be for school games and proxies of any kind. 
